@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hey, I'm Pradeep a.ka. praDeepu 👋
 
 <!--
 **pradeepmurthy/pradeepmurthy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
